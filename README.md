@@ -8,5 +8,7 @@ Scrumy:
 Integrantes del grupo:
 
 Roberto Sanchez / robertosm17@gmail.com / robertosm17
+
 Pablo Guevara / pabloguevara144@gmail.com / pabloguevara12
+
 Sandra Fuentes / sandrafv@gmail.com / Sandrafv
